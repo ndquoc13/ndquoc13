@@ -1,5 +1,6 @@
 ### Hi there 👋
-
+Thank you project galaxy team for claiming the most beautiful NFTs
+Verify Github on Galaxy. gid:kn6CXZKDBF27GDw3Efv8gW
 <!--
 **ndquoc13/ndquoc13** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
